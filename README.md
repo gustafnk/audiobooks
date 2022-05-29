@@ -4,7 +4,9 @@ In chronological order, latest first.
 
 ## 2022
 
-### Humble Inquiry, The Gently Art of Asking Instead of Telling
+### Humble Leadership: The Power of Relationships, Openness, and Trust
+
+### Humble Inquiry: The Gently Art of Asking Instead of Telling
 
 ### Vad är konst?
 
